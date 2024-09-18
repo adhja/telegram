@@ -10,8 +10,11 @@
 
 ❗️所有群组和机器人均整理出自网络，侵权请联系删除❗️
 
-##  🔞广州深圳资源公开搜索🔥:[https://t.me/gspczy](https://t.me/gspczy)
-##  🔞高中叛逆少女白虎黑人:[https://t.me/gaozhongbaihushaonv](https://t.me/gaozhongbaihushaonv)
+### 推荐
+| 名字     | 链接 | 功能描述     |
+| :---        |    :----:   |          :--- |
+| 🔞广州深圳资源公开搜索🔥      | [https://t.me/gspczy](https://t.me/gspczy)     | 广州深圳资源公开搜索  |
+| 🔞高中叛逆少女白虎黑人      | [[https://t.me/gaozhongbaihushaonv](https://t.me/gaozhongbaihushaonv)    |  🔞高中叛逆少女白虎黑人  |
 
 </div>
 
@@ -38,7 +41,6 @@
 
 twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=99653959) 完成社媒任务（签到、关注、转发等）
 
-### 广告：多个群组频道按钮广告：600U/月，[有需要联系双向机器人:@sd_msgbot](https://t.me/sd_msgbot)
 
 ### 推荐
 *   Telegram 🔥频道导航|群组导航🔥:[https://t.me/tgpddh](https://t.me/tgpddh)
@@ -90,7 +92,6 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 
 - 报价：日收益*80（100%活人真人）
 
-### 电报真人粉: 1000人/4000元[有需要联系:@sd_msgbot](https://t.me/sd_msgbot)
 
 ### 会员机器人
 | 名字     | 链接 | 功能描述     |
