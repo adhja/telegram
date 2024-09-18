@@ -10,8 +10,8 @@
 
 ❗️所有群组和机器人均整理出自网络，侵权请联系删除❗️
 
-*   Telegram 🔞广州深圳资源公开搜索🔥:[https://t.me/gspczy](https://t.me/gspczy)
-*   Telegram 🔞高中叛逆少女白虎黑人:[https://t.me/gaozhongbaihushaonv](https://t.me/gaozhongbaihushaonv)
+##  🔞广州深圳资源公开搜索🔥:[https://t.me/gspczy](https://t.me/gspczy)
+##  🔞高中叛逆少女白虎黑人:[https://t.me/gaozhongbaihushaonv](https://t.me/gaozhongbaihushaonv)
 
 </div>
 
