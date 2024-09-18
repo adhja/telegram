@@ -10,6 +10,9 @@
 
 ❗️所有群组和机器人均整理出自网络，侵权请联系删除❗️
 
+*   Telegram 🔞广州深圳资源公开搜索🔥:[https://t.me/gspczy](https://t.me/gspczy)
+*   Telegram 🔞高中叛逆少女白虎黑人:[https://t.me/gaozhongbaihushaonv](https://t.me/gaozhongbaihushaonv)
+
 </div>
 
 | [![@TG最强搜索机器人](https://i.imgur.com/uTMZCDf.png)<br>@TG最强搜索机器人](https://t.me/sosoo?start=a_6294881820) |  [![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_6294881820) |[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_6294881820) |
