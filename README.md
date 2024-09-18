@@ -1,4 +1,3 @@
-2024最受欢迎的10000+个Telegram群合集，附带全网最有趣最好用的机器人BOT🤖【tg百科】
 <!--
  * @Description:
  * @telegram: @sd_msgbot
