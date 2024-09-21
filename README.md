@@ -2,6 +2,13 @@
  * @Description:
  * @telegram: @sd_msgbot
 -->
+ 推荐
+ ======================================
+| 名字     | 链接 | 功能描述     |
+| :---        |    :----:   |          :--- |
+| 🔞广州深圳资源公开搜索🔥      | [https://t.me/gspczy](https://t.me/gspczy)   3192 位成员  | 🔞广州深圳资源公开搜索 🔥  |
+| 🔞高中叛逆少女白虎黑人      | [[https://t.me/gaozhongbaihushaonv](https://t.me/gaozhongbaihushaonv)   23192 位成员 |  🔞高中叛逆少女白虎黑人  |
+
 ## 声明
 <div align="center">
 【电报推荐】10000+ 优质Telegram群组推荐、频道和机器人，精心筛选，让您轻松玩转Telegram。
@@ -9,12 +16,6 @@
 ❗️❗️❗️本文内容严禁在中国大陆使用，一切违法后果请自行承担❗️❗️❗️
 
 ❗️所有群组和机器人均整理出自网络，侵权请联系删除❗️
-
-### 推荐
-| 名字     | 链接 | 功能描述     |
-| :---        |    :----:   |          :--- |
-| 🔞广州深圳资源公开搜索🔥      | [https://t.me/gspczy](https://t.me/gspczy)     | 🔞广州深圳资源公开搜索  |
-| 🔞高中叛逆少女白虎黑人      | [[https://t.me/gaozhongbaihushaonv](https://t.me/gaozhongbaihushaonv)    |  🔞高中叛逆少女白虎黑人  |
 
 </div>
 
