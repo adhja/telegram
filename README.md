@@ -11,7 +11,7 @@
 
 ## 声明
 <div align="center">
-【电报推荐】10000+ 优质Telegram群组推荐、频道和机器人，精心筛选，让您轻松玩转Telegram。
+【电报推荐】20000+ 优质Telegram群组推荐、频道和机器人，精心筛选，让您轻松玩转Telegram。
 
 ❗️❗️❗️本文内容严禁在中国大陆使用，一切违法后果请自行承担❗️❗️❗️
 
@@ -19,9 +19,9 @@
 
 </div>
 
-| [![@TG最强搜索机器人](https://i.imgur.com/uTMZCDf.png)<br>@TG最强搜索机器人](https://t.me/sosoo?start=a_6294881820) |  [![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_6294881820) |[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_6294881820) |
+| [![@TG最强搜索机器人](https://i.imgur.com/uTMZCDf.png)<br>@TG最强搜索机器人](https://t.me/soso?start=a_1951804542) |  [![@极搜JiSo](https://i.imgur.com/we9lyse.jpeg)<br>@极搜JiSo](https://t.me/jiso?start=a_1951804542) |[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_1951804542) |
 |:---:|:---:|:---:|
-| [![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7352210715) |  [![@频道转发小助手](https://i.imgur.com/58e8neu.png)<br>@频道转发小助手](https://t.me/tgzfxzsbot) |[![@AISO](https://i.imgur.com/KuVfi0u.png)<br>@AISO](https://t.me/aiso?start=telegram_7202424896)|
+| [![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=1951804542) |  [![@频道转发小助手](https://i.imgur.com/58e8neu.png)<br>@频道转发小助手](https://t.me/tgzfxzsbot) |[![@AISO](https://i.imgur.com/KuVfi0u.png)<br>@AISO](https://t.me/aiso?start=telegram_1951804542)|
 | [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupianshenqi1)  |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sesequn20w) | [![暗网搜索](https://i.imgur.com/woGNZUA.png)<br>暗网搜索](https://t.me/anwangsearchbot)|
 | [![中文搜索①](https://i.imgur.com/OWV7rdZ.png)<br>中文搜索①](https://t.me/sousuo20w)  |  [![中文搜索②](https://i.imgur.com/xn0EiEy.png)<br>中文搜索②](https://t.me/qnssking) |[![中文搜索③](https://i.imgur.com/SA6Oq0p.png)<br>资源搜索](https://t.me/resource4)|
 
