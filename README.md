@@ -64,12 +64,12 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 *   Telegram 🔥曝光集中营🔥:[https://t.me/bgjzy](https://t.me/bgjzy)
 *   Telegram 🔥5U供需发布🔥:[https://t.me/gxfb5u](https://t.me/gxfb5u)
 *   Telegram 🔥客户端中文汉化CN:[https://t.me/go2cn](https://t.me/go2cn)
-*   Telegram 🔥最强群组机器人🤖:[https://t.me/soso](https://t.me/sosoo?start=a_6294881820)
-*   Telegram 🔥最强搜索机器人JiSou🤖:[t.me/jisou](https://t.me/jisou2bot?start=a_6294881820)
-*   Telegram 🔥最强搜索机器人JiSo🤖:[https://t.me/jiso](https://t.me/jiso?start=a_6294881820)
+*   Telegram 🔥最强群组机器人🤖:[https://t.me/soso](https://t.me/sosoo?start=a_1951804542)
+*   Telegram 🔥最强搜索机器人JiSou🤖:[t.me/jisou](https://t.me/jisou2bot?start=a_1951804542)
+*   Telegram 🔥最强搜索机器人JiSo🤖:[https://t.me/jiso](https://t.me/jiso?start=a_1951804542)
 *   Telegram 🔥i快搜机器人🤖:[https://t.me/ikuaisobot](https://t.me/ikuaisobot?start=7352210715)
-*   Telegram 🔥aiso中文搜索🤖:[https://t.me/aiso](https://t.me/aiso?start=telegram_6294881820)
-*   Telegram 🔥神马搜索🤖:[https://t.me/smss](https://t.me/smss?start=spread_6294881820)
+*   Telegram 🔥aiso中文搜索🤖:[https://t.me/aiso](https://t.me/aiso?start=telegram_1951804542)
+*   Telegram 🔥神马搜索🤖:[https://t.me/smss](https://t.me/smss?start=spread_1951804542)
 *   🔥 赏颜阁 🔥全网最漂亮的妹子聚集地 :[https://t.me/dysyg](https://t.me/dysyg)
 *   💰 撸空投 💰财务自由之路 :[https://t.me/tglukongtou](https://t.me/tglukongtou)
 *   🎥 阿里云盘4K高清资源:[https://t.me/alidriver4k](https://t.me/alidriver4k)
@@ -92,10 +92,6 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 
 - 其他功能机器人(费用根据功能难易度来收，少则30U多则或几千上万U)
 
-### 出售搜索群，稳定每天2U、3U、5U等[有需要联系:@sd_msgbot](https://t.me/sd_msgbot)
-
-- 报价：日收益*80（100%活人真人）
-
 
 ### 会员机器人
 | 名字     | 链接 | 功能描述     |
@@ -107,13 +103,13 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
 | wallet       |   [@wallet](https://t.me/wallet)  | Telegram官方钱包，支持比特币、USDT和TON的应用内支付|
-| okpay      | [@OkayPayBot](https://t.me/OkayPayBot?start=creditCardInvite--6294881820)       |可用于店租（Amazon、Shopify、Shope等）、广告（Facebook、Google等）、云服务、游戏、开发者应用、海淘购物等全场景支付。|
+| okpay      | [@OkayPayBot](https://t.me/OkayPayBot?start=creditCardInvite--1951804542)       |可用于店租（Amazon、Shopify、Shope等）、广告（Facebook、Google等）、云服务、游戏、开发者应用、海淘购物等全场景支付。|
 
 ### 交易所提币
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
-| 币安    |   [https://accounts.binance.com](https://accounts.binance.com/zh-CN/register?ref=896983517)   |       币安交易所(持有bnb减免40%手续费)|
-| 欧易OKX    |   [https://www.okx.com](https://okx.com/join/78810492)   |      欧易交易所(减免20%手续费)|
+| 币安    |   [https://accounts.binance.com](https://accounts.binance.com/zh-CN/register?ref=CPA_0003YIC7YS)   |       币安交易所(持有bnb减免40%手续费)|
+| 欧易OKX    |   [https://www.okx.com](https://okx.com/join/78623680)   |      欧易交易所(减免20%手续费)|
 | ByBit    |   [https://www.bybit.com/](https://www.bybit.com/invite?ref=4VLKDMW)   |      ByBit交易所(减免30%手续费)|
 
 ### 常用机器人
@@ -133,15 +129,15 @@ twitter💰nebx.io空投地址:[https://nebx.io/](https://nebx.io/login?v=996539
 #### TG中文群组索引机器人bot
 | 名字     | 链接 | 功能描述     |
 | :---        |    :----:   |          :--- |
-|SOSO|[@soso](https://t.me/sosoo?start=a_6294881820)|群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。|
-| 极搜JiSo | [@jiso](https://t.me/jiso?start=a_6294881820)  | 群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。|
-| 极搜JiSou     | [@jisou](https://t.me/jisou2bot?start=a_6294881820)  | 群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。  |
+|SOSO|[@soso](https://t.me/sosoo?start=a_1951804542)|群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。|
+| 极搜JiSo | [@jiso](https://t.me/jiso?start=a_1951804542)  | 群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。|
+| 极搜JiSou     | [@jisou](https://t.me/jisou2bot?start=a_1951804542)  | 群组搜索机器人🔍，然后BOT提供关键词相关群组的机器人。可以拉到群组使用。  |
 | 华夏搜索机器人     | [@huaxia123_bot](https://t.me/huaxia123_bot?start=pRtPVwfpWEBFGb0hVYqZDphA3pWYZSNP)  | TG必备神器，找到您感兴趣的群组、频道和机器人！ |
 | ikuaiso     | [@ikuaisobot](https://t.me/ikuaisobot?start=7352210715)  | 帮你找到有趣的群、频道、视频、音乐、电影、新闻！ |
-| aiso搜索机器人     | [@aiso](https://t.me/aiso?start=telegram_6294881820)  | 查找群组、频道、影视、音乐或机器人。  |
-| 神马索引机器人      | [@smss](https://t.me/smss?start=spread_6294881820)       | 神马索引机器人，可以通过关键词查找  |
-| 中文索引   | [@TeleTop123Bot](https://t.me/TeleTop123Bot?start=6294881820)        | 帮助您找到感兴趣的群组、频道和机器人！      |
-| TON索引     | [TonCnBot](https://t.me/TonCnBot?start=6294881820)       | 帮助您找到感兴趣的群组、频道和机器人！  |
+| aiso搜索机器人     | [@aiso](https://t.me/aiso?start=telegram_1951804542)  | 查找群组、频道、影视、音乐或机器人。  |
+| 神马索引机器人      | [@smss](https://t.me/smss?start=spread_1951804542)       | 神马索引机器人，可以通过关键词查找  |
+| 中文索引   | [@TeleTop123Bot](https://t.me/TeleTop123Bot?start=1951804542)        | 帮助您找到感兴趣的群组、频道和机器人！      |
+| TON索引     | [TonCnBot](https://t.me/TonCnBot?start=1951804542)       | 帮助您找到感兴趣的群组、频道和机器人！  |
 
 
 #### 群组抽奖机器人
